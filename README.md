@@ -14,4 +14,4 @@ Aku suka Game, musik, Gadget, Teknologi, etc.
 
 udah... gitu aja sih :v
 
-(https://id.pinterest.com/pin/74872412552803588/)
+!(https://id.pinterest.com/pin/74872412552803588/)
