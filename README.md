@@ -15,6 +15,7 @@ Aku suka Game, musik, Gadget, Teknologi, etc.
 udah... gitu aja sih :v
 
 
-<img width="125" height="125" alt="image" src="https://github.com/user-attachments/assets/9ca77cd3-171c-48a6-b705-e60d36a2d539" />
+<img width="119" height="133" alt="image" src="https://github.com/user-attachments/assets/ff005e23-aed9-4aad-8359-23378b901eaa" />
+
 
 sebetulnya masih ada banyak lagi, tapi kayaknya ndak penting, so... yawdah itu aja keknya. Hehe
