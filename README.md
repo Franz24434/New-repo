@@ -1,4 +1,4 @@
-# Perkenalan
+# HI :D
 
 - Nama           : Alfikru Fadel Fathaya
 - Kelas          : XII RPL 1
@@ -15,4 +15,13 @@ Aku suka Game, musik, Gadget, Teknologi, etc.
 udah... gitu aja sih :v
 
 
-<img width="736" height="736" alt="image" src="https://github.com/user-attachments/assets/9ca77cd3-171c-48a6-b705-e60d36a2d539" />
+<img width="100" height="125" alt="image" src="https://github.com/user-attachments/assets/9ca77cd3-171c-48a6-b705-e60d36a2d539" />
+
+
+
+
+
+
+
+
+
