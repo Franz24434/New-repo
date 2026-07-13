@@ -1,6 +1,6 @@
 # Perkenalan
 
-- Nama           : Alfikru Fadel F.
+- Nama           : Alfikru Fadel Fathaya
 - Kelas          : XII RPL 1
 - Hobi           : Catur, Olahraga (body weight lifting, Badminton, skipping), Main Game, Dengerin musik
 
@@ -8,7 +8,7 @@
 ALfikru Fadel F. (panggil Fadel aja), pemuda membosankan dengan hidup yang membosankan.
 Aku suka Game, musik, Gadget, Teknologi, etc.
 
-### Prinsip
+### Prinsip-Ku
 1% lebih baik dari hari sebelumnya
 
 
