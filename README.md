@@ -17,4 +17,4 @@ udah... gitu aja sih :v
 
 <img width="125" height="125" alt="image" src="https://github.com/user-attachments/assets/9ca77cd3-171c-48a6-b705-e60d36a2d539" />
 
-sebetulnya masih ada banyak lagi, tapi kayaknya ndak penting, so... yawdah itu aja keknya. Hehe :D
+sebetulnya masih ada banyak lagi, tapi kayaknya ndak penting, so... yawdah itu aja keknya. Hehe
