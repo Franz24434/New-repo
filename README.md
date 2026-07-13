@@ -10,3 +10,8 @@ Aku suka Game, musik, Gadget, Teknologi, etc.
 
 ### Prinsip
 1% lebih baik dari hari sebelumnya
+
+
+udah... gitu aja sih :v
+
+(https://id.pinterest.com/pin/74872412552803588/)
