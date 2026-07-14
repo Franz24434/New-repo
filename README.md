@@ -4,6 +4,7 @@
 - Kelas             : XII RPL 1
 - Hobi              : Catur, Olahraga (body weight lifting, Badminton, skipping), Main Game, Dengerin musik
 - Makanan kesukaan  : Telur, Daging, Sayur
+- Game Favorit      : Hyperlight Drifter
 
 ### Perkenalkan Semuanya
 ALfikru Fadel F. (panggil Fadel aja), pemuda membosankan dengan hidup yang membosankan.
